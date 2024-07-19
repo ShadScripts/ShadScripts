@@ -3,7 +3,7 @@
 »⟫ My hobbies are cooking and nutrition, reading novels and excercising!
 
 »⟫ I’m currently studying acturial science, mathematics and computer science,
-   and the guitar!
+   and for some fun the guitar!
    
 🌲🌲🌲🌲🌲🌲🌲🌲🌲🌲🌲🌲🌲🌲🌲🌲🌲🌲🌲🌲🌲🌲🌲🌲🌲🌲🌲🌲🌲🌲🌲🌲🌲🌲🌲🌲
 🌲🌲🌲🌲🌲🌲🌲🌲🌲🌲🌲🌲🌲🌲🌲🌲🌲🌲🌲🌲🌲🌲🌲🌲🌲🌲🌲🌲🌲🌲🌲🌲🌲🌲🌲🌲
